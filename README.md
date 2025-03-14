@@ -1,1 +1,1 @@
-# acessibilidae-de-2025
+# acessibilidade-de-2025
